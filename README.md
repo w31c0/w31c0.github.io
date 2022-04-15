@@ -1,2 +1,2 @@
-# w31c0.github.io
+# Cool Website
 no copy of this or im gonna be mad
